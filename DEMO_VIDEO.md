@@ -1,1 +1,1 @@
-[JD](https://www.linkedin.com/posts/kunal-debnath-212255237_jd-began-as-a-conversational-ai-project-built-ugcPost-7407357695017615361-H70t?utm_source=social_share_send&utm_medium=member_desktop_web&rcm=ACoAADryf-4BUaEdFeSNFW0pInulGnlINW6ECzM)
+[click on this to see video](https://www.linkedin.com/posts/kunal-debnath-212255237_jd-began-as-a-conversational-ai-project-built-ugcPost-7407357695017615361-H70t?utm_source=social_share_send&utm_medium=member_desktop_web&rcm=ACoAADryf-4BUaEdFeSNFW0pInulGnlINW6ECzM)
